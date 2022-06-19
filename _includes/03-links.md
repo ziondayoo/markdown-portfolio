@@ -1,1 +1,1 @@
-[linkedin](www.linkedin.com/in/adetunjitemi01)
+[linkedin](http://linkedin.com/in/adetunjitemi01)
